@@ -71,7 +71,7 @@ Now Here Starts the Main thing that Improves your Problem-Solving Skills. "If Yo
 
 	2. 2nd Mistake you were not able to Implement the Concept by your own after watching the video or Solution.
 
-	3. Note these 2 Points and end "Today Take Complete -> Ab Mja Kro" 🎉
+	3. Note these 2 Points and end "Today's Task is Complete -> Ab Mja Kro" 🎉
 
 3. Tomorrow Again Follow the Same all process "But today you try and focused on those mistakes that you did yesterday so your task is to do not repeat these same mistakes today again" and follow the same process.
 
